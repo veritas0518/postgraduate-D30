@@ -1,0 +1,2 @@
+# postgraduate-D30
+Today is children's day, but I'm very anxious. What kind of misunderstanding is what the embedded Linux teacher seems to me? He may think I am not the type of learning. Actually, I spend a lot of time in this course. I feel very sad. I don't know why the teacher has such an idea. The most important thing is that I have to get high marks in the final exam. It's too difficult. The computer industry is really too difficult
